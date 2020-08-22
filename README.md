@@ -10,7 +10,7 @@ En= You deleted or your game of zelda twilight princess gc was damaged, no probl
 
 
 
-Es= Borraste o se daño tu partida de zelda twilight princess gc, no hay problema ,aqui hay partidas guardadas de distintos progresos del juego, espero que se les sea utíl
+Es= Borraste o se daño tu partida de zelda twilight princess gc, no hay problema ,aqui hay partidas guardadas de distintos progresos del juego, espero que se les sea util
 
 
 
