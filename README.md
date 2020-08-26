@@ -17,11 +17,11 @@ Es= Borraste o se daño tu partida de zelda twilight princess gc, no hay problem
 
 
 
-En= I have not finished the game yet, but I will be updating the games saved in the zip
+En= I have not finished the game yet, but I will be updating the games saved in the rar
 
 
 
 
 
 
-Es= Todavia no termino el juego , pero estare actualizando las partidas guardadas en el zip
+Es= Todavia no termino el juego , pero estare actualizando las partidas guardadas en el rar
